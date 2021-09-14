@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wictor-Hugo-S
-- 👀 I’m interesd in aprender cada vez mais tecnologias e ajudar as empresa ao máximo a conseguir seus objetiv!
+- 👀 I’m interesd in aprender cada vez mais tecnologias e ajudar as empresa ao máximo a conseguir seus objetivo!
 
 
 
